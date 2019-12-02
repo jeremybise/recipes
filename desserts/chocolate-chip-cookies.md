@@ -1,5 +1,9 @@
 # Chocolate Chip Cookies
 
+## Notes
+
+- This turned out pretty dry and crumbly. Idk. Try again?
+
 ## Ingredients
 
 - 100g chopped walnuts (without skins)
